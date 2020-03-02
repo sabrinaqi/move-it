@@ -1,3 +1,3 @@
-# research
+# Research
 
-Independent Study Fall 2019.
+Spring 2020, Randles Lab.
